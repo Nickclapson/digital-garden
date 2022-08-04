@@ -8,3 +8,5 @@ Our home is inside ourselves. It is conception we carry around with us. If we st
 Try not to feel disconnected. Try to be aware you are never away from home. The world is your experience. You are your own home. 
 
 **You are home.**
+
+[[Octopus]]
